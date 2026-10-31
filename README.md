@@ -210,4 +210,4 @@ The Conquerors is fully free to download and play, providing you with the comple
 Start your conquest today with The Conquerors! Download now and experience the ultimate strategy gaming adventure!
 
 ---
-**Last updated:** 2026-10-30 22:54:33 UTC
+**Last updated:** 2026-10-31 02:00:01 UTC
